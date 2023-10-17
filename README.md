@@ -1,4 +1,5 @@
-Prayagraj , Uttar Pradesh, India . |   Contacts: [gmail](aryan.rru@gmail.com) 
+#### Aryan
+ | Prayagraj , Uttar Pradesh, India . |   Contacts: [gmail](aryan.rru@gmail.com) |
 ___
 ### Personal Profile 
 
